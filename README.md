@@ -1,1 +1,1 @@
-# J296---Data-Journalism-Spring-2022-
+# J296
